@@ -1,4 +1,4 @@
-# Namaste, Shivam Here from Garvi Gujart! 👋
+# Namaste, Shivam Here from Garvi Gujarat! 👋
 
 I'm an author, mentor, trainer, and tech consultant. I'm currently working as a Mobile App Developer. I'm open for mentoring, training and consultation services.
 
